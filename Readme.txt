@@ -1,6 +1,9 @@
-Thanks for downloading this theme!
+BATTERY SERVICES
+One of the most reputed and old service providers who are working in the field of battery and their services. We provide retail as well as wholesale selling options. We are always available to help you.
+Prices less than any online seller !!
 
-Theme Name: eBusiness
-Theme URL: https://bootstrapmade.com/ebusiness-bootstrap-corporate-template/
-Author: BootstrapMade.com
-Author URL: https://bootstrapmade.com
+Recharging
+Reparing
+Assembling
+Servicing
+Solar Equipments
